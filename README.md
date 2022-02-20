@@ -1,0 +1,7 @@
+- 🚒 Firefighter
+- 📚 Student at kood/Jõhvi
+- 🕹️ Considering speedrunning
+- 🤝 Looking forward to collaborate on something interesting and useful
+- 📫 Can be contacted through
+  - Discord: AaEnnDeeErrEeEss#5157
+  - E-mail: aaendeereees[at]gmail[dot]com
