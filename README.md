@@ -1,5 +1,6 @@
 - 🚒 Firefighter
-- 📚 Student at kood/Jõhvi
+- 📚 Dev student at kood/Jõhvi
+- 💻 Looking for career possibilities in dev
 - 🕹️ Considering speedrunning
 - 🤝 Looking forward to collaborate on something interesting and useful
 - 📫 Can be contacted through
