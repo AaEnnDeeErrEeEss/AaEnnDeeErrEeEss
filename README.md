@@ -2,7 +2,7 @@
 - 📚 Dev student at kood/Jõhvi
 - 💻 Looking for career possibilities in dev
 - 🕹️ Considering speedrunning
-- 🤝 Looking forward to collaborate on something interesting and useful
+- 🤝 Looking forward to collaborating on something interesting and useful
 - 📫 Can be contacted through
   - Discord: AaEnnDeeErrEeEss#5157
   - E-mail: aaendeereees[at]gmail[dot]com
