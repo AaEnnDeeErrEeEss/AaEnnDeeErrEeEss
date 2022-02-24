@@ -1,8 +1,9 @@
 - 🚒 Firefighter
+- 🤸‍♂️ Love calisthenics
+- 🕹️ Considering speedrunning
 - 📚 Dev student at kood/Jõhvi
 - 💻 Looking for career possibilities in dev
-- 🕹️ Considering speedrunning
 - 🤝 Looking forward to collaborating on something interesting and useful
-- 📫 Can be contacted through
+- 📫 Can be contacted via:
   - Discord: AaEnnDeeErrEeEss#5157
   - E-mail: aaendeereees[at]gmail[dot]com
