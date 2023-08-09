@@ -1,8 +1,4 @@
 - 🚒 Firefighter
-- 🤸‍♂️ Love calisthenics
-- 🕹️ Considering speedrunning
-- 📚 Dev student at kood/Jõhvi
-- 💻 Looking for career possibilities in dev
 - 🤝 Looking forward to collaborating on something interesting and useful
 - 📫 Can be contacted via:
   - Discord: AaEnnDeeErrEeEss#6956
