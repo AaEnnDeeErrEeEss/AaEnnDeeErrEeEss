@@ -1,5 +1,1 @@
-- 🚒 Firefighter
-- 🤝 Looking forward to collaborating on something interesting and useful
-- 📫 Can be contacted via:
-  - Discord: AaEnnDeeErrEeEss#6956
-  - E-mail: aaendeereees[at]gmail[dot]com
+
